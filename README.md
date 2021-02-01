@@ -1,1 +1,0 @@
-# clapt-shop.github.io
